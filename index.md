@@ -1,37 +1,21 @@
-## Welcome to GitHub Pages
+<h1>How To Pronounce Everybody</h1>
 
-You can use the [editor on GitHub](https://github.com/Tobanggado/how-to-pronounce-everybody/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Tobanggado/how-to-pronounce-everybody/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+<div id="toc" style="background: #f9f9f9;border: 1px solid #aaa;display: table;margin-bottom: 1em;padding: 1em;width: 350px;"><p class="toctitle" style="font-weight: 700;text-align: center;">Content</p><ul class="toc_list"><li><a href="#toc-0">Restored Letters</a></li><li><a href="#toc-1">Māori Pronunciation</a></li><li><a href="#toc-2">What Language Is Spoken In New Zealand?</a></li><li><a href="#toc-3">Simple Strategies To Study Excellent English Pronunciation</a></li><li><a href="#toc-6">Jason Kelce Clears Up The Sudden Confusion Across The Pronunciation Of His Final Name</a></li><li><a href="#toc-7">Letter Placement Inside A Block</a></li><li><a href="#toc-8">Which Is Correct Go To Sleep Or Fell Asleep?</a></li></ul></div>
+<p>The chart under exhibits the 21 vowels used in the fashionable Korean alphabet in South Korean alphabetic order with Revised Romanization equivalents for each letter and pronunciation in IPA . Consonants are broadly categorized into both obstruents (sounds produced when airflow either completely stops (i.e., a plosive consonant) or passes by way of a narrow opening (i.e., a fricative)) or sonorants . The chart below lists the Korean consonants by their respective categories and subcategories.</p>
+<ul><li>For surnames I understand and don’t count on they'll remember even if they struggle, I know it's onerous.</li><li>But studying a language that's closely associated to your native language also can bring issues, as a end result of their similarity can result in interference from your native language that would trigger you to make errors.</li><li>So I refuse to let myself get all bent out of form as a result of someone mispronounces my name.</li><li>I remember teachers adding an H to my name even once they had been copying directly off of an attendance listing.</li><li>Because English has totally different rules for the usage of aspirated and unaspirated p, an English speaker learning Thai will make the same sorts of errors that a Japanese speaker makes in utilizing English l and r.</li></ul>
+<p>In current years, more and more folks have been announcing this word VEE-suh , little doubt partly due to the quite a few TV commercials for the popular credit card, in which the voice-overs habitually mispronounce it VEE-suh. I even have heard sure well-educated people mispronounce this word TOW-rus (TOW- as in tower). This is an example of how a little studying can be a misleading factor.</p>
+<h2 id="toc-0">Restored Letters</h2>
+<p>Every syllable begins with a consonant (or the silent ㅇ) that's adopted by a vowel (e.g. Japan banned the Korean language from colleges in 1938 as a part of a coverage of cultural assimilation, and all Korean-language publications have been outlawed in 1941. In 1796, the Dutch scholar Isaac Titsingh grew to become the first particular person to deliver a guide written in Korean to the Western world. His collection of books included the Japanese guide, Sangoku Tsūran Zusetsu by Hayashi Shihei. This book, which was published in 1785, described the Joseon Kingdom and the Korean alphabet.</p>
+<div style='text-align:center'><iframe width='565' height='312' src='https://www.youtube.com/embed/1hwSXDFVbaw' frameborder='0' alt='how to pronounce everybody' allowfullscreen></iframe></div>
+<p>The word flutist was first recorded in 1603, and FLOO-tist has been and nonetheless is the only acceptable pronunciation for it. The variant flautist was adapted from the Italian flautista in 1860. The most popular pronunciation for flautist is FLAW-tist (FLAW- like flaw) The variant FLOW-tist (FLOW- rhyming with cow), which mimics the Italian pronunciation of -au, seems in present dictionaries but solely the NBC Handbook prefers it. Unless you've some special cause for preferring Italian spellings and pronunciations, stick to the Englishflutist(FLOO-tist), which is both conventional and unaffected.</p>
+<h3 id="toc-1">Māori Pronunciation</h3>
+<p>The voiced this resonant; the unvoiced th is lispy and weak. The pronunciations VAHZ and VAWZ, noted by Walker above, are British. The former is the prevailing pronunciation, however the latter “has still some forex in England,” says OED 2. In an American speaker, say Morris & Morris , VAHZ “is a mark of affectation.” I agree. The slovenly speaker pronounces succeed like secede(suh-SEED). The careful speaker preserves the k-s sound of the cc.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>How do you say pricey all politely?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>The phrase “dear all” is one approach to address an e mail to multiple individuals. The use of “dear” is comparatively formal, making this an appropriate greeting for work-related emails to teams. Alternatives embody “hello,” “greetings, everybody,” “hi everyone,” “hi all” and listing addressees by name.</p></div>  </div></div>
+<p>The suffix –ise, which takes its spelling from French, is equivalent to the suffix –ize, which comes from Greek. In promote, compromise, enterprise, improvise, exercise, supervise, and merchandise,-iseis correctly pronounced as –ize. Take care to not confuse the singular and plural pronunciations. Many audio system incorrectly say diagno-seez after they mean diagno-sis. In American speech, the u in buffet might have the sound of the u in however, or oo in guide,or oo in boot.</p>
+<h2 id="toc-2">What Language Is Spoken In New Zealand?</h2>
+<p>There are these, principally folks in theater advertising, who will let you know that OP brings audiences nearer to Shakespeare's authentic which means. Whatever the veracity of that declare, there are some issues which would possibly be true about OP. Second, it's an academic pursuit that has been given an interesting increase in recent times as technology has enabled researchers to know higher how the English language was probably spoken in the 1600s. Ng, which occurs only as a final within the fashionable language. The double letters are positioned to the very finish, as in the preliminary order, however the mixed consonants are ordered immediately after their first factor.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>Is Good afternoon all appropriate?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>Generally, the phrase “good afternoon” just isn't capitalized when utilized in a sentence. However, the phrase “good afternoon” is capitalized in an e-mail when it is used as a salutation at the beginning of an email. Email salutations (Dear, Hi, Hello, and so on.)</p></div>  </div></div>
+<p>"We're in the hospitality trade. I suppose any restaurant you go to is a hot subject," Hackworth stated. "We actually should be in entrance of strangers each single day. Keeping our staff accountable is something that is a priority and maintaining them knowledgeable about what's going on." At the Shape Center in Third Ward, they are suspending in-person Kwanzaa occasions for the time being because of a rise in COVID circumstances. These experiences supply the possibility to pay attention to the Māori language. There are eight consonants in Māori, similar to these in English — h, k, m, n, p, r, t, and w.</p>
+<h3 id="toc-3">Easy Methods To Learn Perfect English Pronunciation</h3>
+<p>Greeks had two letters transcribed in English with the letter E. Our accents change over time as our wants change and as our sense of who we are adjustments and develops. Usually this occurs naturally, and sometimes unconsciously. Accents may be expected to change until we're in our early twenties.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>What word takes three hours to pronounce?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>METHIONYLTHREONYLTHREONYGLUTAMINYLARGINYL …<br><br> Note the ellipses. All informed, the complete chemical name for the human protein titin is 189,819 letters, and takes about three-and-a-half hours to pronounce.</p></div>  </div></div>
